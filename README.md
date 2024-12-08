@@ -1,6 +1,6 @@
 *THIS PASSAGE IS NOT MY PUBLIC PROFILE*
 
-![:name](https://counter.seku.su/cmoe?name=ThreeManager785-personal-readme&theme=r34)
+![:name](https://count.getloli.com/get/ThreeManager785-personal-readme?theme=rule34)
 
 
 # #1 序章
